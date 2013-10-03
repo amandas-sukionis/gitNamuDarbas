@@ -1,0 +1,4 @@
+gitNamuDarbas
+=============
+
+GIT namų darbas
