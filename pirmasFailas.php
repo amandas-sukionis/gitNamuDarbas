@@ -1,1 +1,1 @@
-Pirmasss
+Pirmasss dar dadedam
